@@ -1,2 +1,2 @@
-# typical1902.github.io
-yesssss
+# typical1902.github.io 
+bean borrito
